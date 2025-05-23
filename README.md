@@ -1,2 +1,2 @@
 Marketing & Analytics
-Ecommerce expert
+E-commerce expert
