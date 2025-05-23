@@ -1,1 +1,2 @@
-This is Jisu Lee
+Marketing & Analytics
+Ecommerce expert
